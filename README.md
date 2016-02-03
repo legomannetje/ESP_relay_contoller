@@ -18,3 +18,4 @@ How you use it?
 
 If you have any questions, be free to ask!
 
+At the moment all the text is in Dutch, im going to translate, but do not be a shame to be a head of me
